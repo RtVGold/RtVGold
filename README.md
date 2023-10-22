@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @RtVGold
 - 👀 I’m interested in video games, mangas and japan culture
-- 🌱 I’m currently learning IT and Network
+- 🌱 I’m currently learning in the school ICAN
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: mail: mileaum4@gmail.com
 
